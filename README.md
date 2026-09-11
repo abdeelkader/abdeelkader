@@ -1,5 +1,4 @@
-# Coughyyee
-# 💫 About Me:
+# van1ikka
 A little curious about everything.<br><br>Still somewhere between where I am<br>and where I'm going.<br>
 
 
