@@ -1,6 +1,6 @@
 # Coughyyee
 # 💫 About Me:
-A little curious about everything.<br><br>Learning, creating, exploring —<br>and keeping the rest to myself.<br><br>Still somewhere between where I am<br>and where I'm going.<br>
+A little curious about everything.<br><br>Still somewhere between where I am<br>and where I'm going.<br>
 
 
 ## 🌐 Socials:
